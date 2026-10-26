@@ -1,2 +1,0 @@
-# Elyor-Yusupov-
-gihub
